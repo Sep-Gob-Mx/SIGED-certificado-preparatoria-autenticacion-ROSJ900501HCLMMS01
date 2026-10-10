@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-ROSJ900501HCLMMS01
+ROSJ900501HCLMMS01
